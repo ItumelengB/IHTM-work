@@ -1,6 +1,4 @@
-# Itumeleng Ruth Buti 
-## Lesotho 🇱🇸
- # About me:
+# Itumeleng Ruth Buti 🇱🇸
 Itumeleng Buti is a medical doctor from Lesotho, currently pursuing an MSc in International Health and Tropical Medicine at the Nuffield Department of Medicine, University of Oxford. She is a Mastercard Foundation AfOx Scholar and a member of Linacre College.
 
 Before joining Oxford, Itumeleng worked at Queen ‘Mamohato Memorial Hospital and Motebang Hospital in Lesotho. She is passionate about strengthening health systems in low- and middle-income countries. As a co-founder of SeilatsatsiLS, an NGO advocating for gender equality, she also leads Project Girls for Girls (G4G) in Lesotho.
